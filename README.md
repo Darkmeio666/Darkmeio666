@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Darkme.io.666@proton.me**
 
-- ⚡ Fun fact about me **wanderlust**
+- ⚡ Fun fact about me **i love to travel**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
