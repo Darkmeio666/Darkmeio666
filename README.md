@@ -15,7 +15,7 @@
 
 - ⚡ Fun fact about me **i love Gaming**
 
-- 🥪 Buy Me a Sandwich [UPI ID----](swapanmajumder87-1@okaxis)
+- 🥪 Buy Me a Sandwich UPI ID-  swapanmajumder87-1@okaxis
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
